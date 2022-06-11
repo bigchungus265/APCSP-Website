@@ -27,4 +27,4 @@ Also, I played for the Wind Ensemble in the 9th grade, which is basically like C
 I have also done taekwondo in the past for a couple of years, and I had been able to reach up to the brown belt which was just two belts short of a black belt. 
 
 
-Thank you for taking a quick peek at my website...I hope you enjoyed it!!!
+Thank you for taking a quick peek at my website...I hope you enjoyed it!!
